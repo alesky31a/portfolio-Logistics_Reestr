@@ -42,7 +42,7 @@
 
 ## 🔗 Смотреть портфолио онлайн
 
-**[alesky31a.github.io/portfolio](https://alesky31a.github.io/portfolio/)**
+**[alesky31a.github.io/portfolio-Logistics_Reestr](https://alesky31a.github.io/portfolio-Logistics_Reestr/)**
 
 ---
 
